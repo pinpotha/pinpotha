@@ -12,3 +12,4 @@
 2019/01/14- gedaradi ude saththunta keema dunna
 2019/01/15- gedaradi ude saththunta keema dunna
 2019/01/16-mal poojawa
+2019/01/17- gedaradi ude saththunta keema dunna
